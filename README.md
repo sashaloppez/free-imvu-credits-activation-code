@@ -13,4 +13,4 @@ imvu credits cheat no human verification
 imvu earn credits not working
 
 
-<h1>www.imvu.best<\h1>
+www.imvu.best
